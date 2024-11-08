@@ -1,7 +1,7 @@
-## GITHUB PROFILE 💡☣️
+##☣️ GITHUB PROFILE ☣️
 **Tarik Fetahović**
 
--student at the Faculty of Electrical Engineering in Sarajevo :electron:. 
+-student at the Faculty of Electrical Engineering in Sarajevo. 
 
 
 
